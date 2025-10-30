@@ -1,1 +1,1 @@
-# Hypomnemata.
+# Hypomnemata
